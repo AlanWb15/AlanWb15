@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @AlanWb15
+- 👀 I’m interested in videogames, photography, music and recently, programming
+- 🌱 I’m currently learning the basics of a formal programer, a want to learn java, phyton at first, and maybe some HTML or CSS 
+- 💞️ I’m looking to collaborate to any person looking foward to help me in this learning procees 
+- 📫 How to reach me: alan16mx@gmail.com, and am on The Odin Project Discord
+- Spanish and English enjoyer
+- My Apex Legends ID: TamalGourmet :D
